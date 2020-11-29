@@ -1,0 +1,1 @@
+preheat oven, Mix wet ingredients, mix dry ingredients in seperate bowl, combine dry and wet, put in oven, let bake for 20 minutes, take out of oven, eat
